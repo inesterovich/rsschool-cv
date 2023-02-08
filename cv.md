@@ -61,3 +61,15 @@ New Disk (One of the leaders in the e-learning field):
 3. Test more than 200 hundread videos for e-learning courser;
 4. Test e-learning courses, which includes in at least in 5 projects about developmnet e-learning courses;
 
+## Education:
+
+2015-2017
+Higher School Of Economics
+Master of Management, Project Management
+
+Successfull graduation one of the top Russian universities with full tution schollarship
+
+## Languages:
+
+Russian - Native
+English - Profficient
