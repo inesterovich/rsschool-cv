@@ -1,2 +1,2 @@
 # rsschool-cv
-2023 self-repeate
+https://inesterovich.github.io/rsschool-cv/cv
